@@ -21,6 +21,7 @@ Let's collaborate to turn your vision into reality. Get in touch today to discus
 
 
 **HOW TO REACH ME:**
+
 My Email: jankennethmayol@gmail.com
 
 Upwork profile: https://www.upwork.com/freelancers/~015a21302348552833?viewMode=1

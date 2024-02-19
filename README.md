@@ -20,7 +20,7 @@ My experience as an IT Specialist has honed my problem-solving abilities and equ
 Let's collaborate to turn your vision into reality. Get in touch today to discuss how I can help you achieve your goals!
 
 
-**HOW TO REACH ME:**
+HOW TO REACH ME:
 My Email: jankennethmayol@gmail.com
 Upwork profile: https://www.upwork.com/freelancers/~015a21302348552833?viewMode=1
 LinkedIn: https://www.linkedin.com/in/jan-kenneth-mayol-a43a282b4/
